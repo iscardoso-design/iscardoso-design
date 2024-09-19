@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Jéssica 
+- 👀 I’m interested in Design
+- 🌱 I’m currently learning Blender
+- 💞️ I’m looking to collaborate on ui projects
+- 📫 How to reach me: iscardoso.design@gmail.com 
+- ⚡ Fun fact: Big yapper
